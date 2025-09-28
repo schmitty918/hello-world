@@ -1,2 +1,2 @@
 # hello-world
-for code you
+35 year old with a math degree but lacking coding knowledge.
